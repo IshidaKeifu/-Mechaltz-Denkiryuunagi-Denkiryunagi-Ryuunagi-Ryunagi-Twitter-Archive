@@ -2,4 +2,4 @@
 
 
 
-# Twitter screencap archive of @Mechaltz. #
+# Twitter screencaps archive of @Mechaltz. #
